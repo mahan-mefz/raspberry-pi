@@ -1,0 +1,1 @@
+cod in razberi py  
